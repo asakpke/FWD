@@ -10,6 +10,3 @@ YouTube.com/playlist?list=PLuSlqiqQkM0wepYUxRHnZVdeQvVOcwP9f
 مزید
 
 FB.com/FreeWebDevelopmentOnline
-
-Inbox admins if you have any question. 
-سوالات؟ ایڈمن سے رابطہ کریں۔
